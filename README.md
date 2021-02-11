@@ -1,2 +1,0 @@
-# SDLC-saujanya-
-data of 
